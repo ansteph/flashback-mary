@@ -1,2 +1,2 @@
 # flashback-mary
-flashback mary ... flashback mary ... flashback mary ... HI SISTERS // lowercase intended haha
+flashback mary ... flashback mary ... flashback mary ... HI SISTERS 
